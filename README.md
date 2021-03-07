@@ -1,2 +1,0 @@
-# SimpleOresModByOak
-idk lol
